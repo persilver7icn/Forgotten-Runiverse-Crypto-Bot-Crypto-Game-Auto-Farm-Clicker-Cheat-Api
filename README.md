@@ -1,1 +1,1 @@
-# jn7zx8nc3m
+https://github.com/r982395y9e/r982395y9e/invitations
